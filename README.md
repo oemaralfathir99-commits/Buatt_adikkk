@@ -1,2 +1,2 @@
 # Buatt_adikkk
-special for you
+special for you dari bubuuuu
